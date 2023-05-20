@@ -1,1 +1,1 @@
-# capstone-2-ETO
+# capstone-2-enjoy-the-outdoors
